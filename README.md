@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **tibudan.rafael@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zfEvNOZBmn6NKOHb4XG-H_glnGya7E5E/view?usp=sharing](https://drive.google.com/file/d/1zfEvNOZBmn6NKOHb4XG-H_glnGya7E5E/view?usp=sharing)
+- 📄 Know about my experiences [https://tinyurl.com/52n44fpb](https://tinyurl.com/52n44fpb)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
